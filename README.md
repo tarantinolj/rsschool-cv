@@ -1,1 +1,1 @@
-https://tarantinolj.github.io/rsschool-cv/cv
+https://tarantinolj.github.io/rsschool-cv/
